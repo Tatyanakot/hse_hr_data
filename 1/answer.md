@@ -20,3 +20,4 @@
 
 Кейт Уинслет - Женщина, едет в комфортабельной каюте 1 класса - 13,54%
 
+ссылка: https://docs.google.com/spreadsheets/d/1LOdFC4FD2w7Upp1aCy3I9C6-4uBCxVF5zlOkJXVlDFo/edit#gid=120251669 
